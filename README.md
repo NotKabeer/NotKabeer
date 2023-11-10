@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NotKabeer
-- 👀 I’m interested in ... SEO ARTICLE WRITING
+- 👀 I’m interested in ... ARTICLE WRITING
 - 🌱 I’m currently learning ... WEB DESIGNING
 - 💞️ I’m looking to collaborate on ...UPWORK
 - 📫 How to reach me ...FROM EMAIL:kabeerkhann666@gmail.com
